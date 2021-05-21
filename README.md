@@ -8,6 +8,7 @@
 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜: Kpop, Kdrama, Anime, & 𝙵𝚘𝚘𝚍
 𝙿𝚛𝚘𝚓𝚎𝚌𝚝𝚜: 𝙼𝚊𝚏𝚒𝚊 𝙻𝚘𝚟𝚎, 𝚃𝚑𝚎 𝙲𝚛𝚢𝚜𝚝𝚊𝚕 𝙿𝚘𝚛𝚝𝚊𝚕, 𝚊𝚗𝚍 𝚊 𝚂𝚎𝚌𝚛𝚎𝚝 𝙿𝚛𝚘𝚓𝚎𝚌𝚝
 ༊*·˚✧･ﾟ: *✧･ﾟ:*
+
 <!---
 nova-grace/nova-grace is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
